@@ -2,6 +2,7 @@
 
 Yoga & Meditation can also help **improve** improve these conditions:
 
+
 ‣ Poor blood circulation
 
 ‣ High blood pressure
