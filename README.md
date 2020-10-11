@@ -1,6 +1,7 @@
 # Why you should try yoga and meditation! #
 
 Yoga & Meditation can also help **improve** improve these conditions:
+
 ‣ Poor blood circulation
 
 ‣ High blood pressure
