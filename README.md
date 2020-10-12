@@ -29,3 +29,13 @@ Yoga & Meditation can also help **improve** improve these conditions:
 
 
 Take a 5 minute break and watch [this](https://youtu.be/inpok4MKVLM) intro video to meditation and watch how your life can change in just 5 minutes! 
+
+## Now that you have tried meditation lets try a simple yoga pose! ##
+
+Make sure you ae in a open space so that you do not hit anything around you.
+Now look at the image below and try this yoga pose. As you are doing the pose take deep breaths, and think about something that makes you happy!
+
+![Picture of yoga pose](https://dailyburn.com/life/wp-content/uploads/2015/07/Gratitude-Asana_Briohny-Smyth_Warrior2.jpg)
+
+Didn't that feel amazing!!
+Taking 5 minutes out of your day for yoga or meditation can truly be a game changer and you should definitely make yoga and meditation apart of yor daily routine!!
